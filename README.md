@@ -1,0 +1,2 @@
+# Fiji
+Fiji, a country in the South Pacific, is an archipelago of more than 300 islands. It's famed for rugged landscapes, palm-lined beaches and coral reefs with clear lagoons. Its major islands, Viti Levu and Vanua Levu, contain most of the population. Viti Levu is home to the capital, Suva, a port city with British colonial architecture. The Fiji Museum, in the Victorian-era Thurston Gardens, has ethnographic exhibits.
